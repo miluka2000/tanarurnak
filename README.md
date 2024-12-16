@@ -1,0 +1,2 @@
+Jó napot tanárúr!
+# tanarurnak
